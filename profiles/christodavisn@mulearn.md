@@ -2,9 +2,6 @@
 
 ### I'm Christo Davis N. I'm from thrissur. I had completed my diploma in civil Engineering in civil engineering from MAHARAJA'S TECHNOLOGICAL INSTITUTE, Thrissur. After my diploma i had completed one year work experience in site supervision. Currently i completed B tech degree in civil engineering from VIDYA ACADEMY OF SCIENCE AND TECHNOLOGY.
 
-> write about your self .................. (minimum 200 Characters)
-
-
 ## One year experience in site supervision of construction of buildings.
 
 ### STRENGTHENING OF RC COLUMN BY GLASS FIBRE ADDED JACKETING 
